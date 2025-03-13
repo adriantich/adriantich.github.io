@@ -1,1 +1,0 @@
-# adriantich.github.io
